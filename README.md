@@ -1,0 +1,5 @@
+- Hi, I’m @Beginnerexe
+- I’m interested in learning
+- I’m currently learning noting
+- I’m looking to collaborate on something easy
+- How to reach me : via  gmail
