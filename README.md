@@ -1,5 +1,4 @@
-- Hi, I’m @Beginnerexe
-- I’m interested in learning
-- I’m currently learning noting
-- I’m looking to collaborate on something easy
-- How to reach me : via  gmail
+- hi, this is me. kanj
+- i have dabbled into html a bit after learning python
+- im very private about my info and all
+- this is all I will give. bye.
