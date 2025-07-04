@@ -1,4 +1,4 @@
 - hi, this is me. kanj
-- i have dabbled into html a bit after learning python
-- im very private about my info and all
-- this is all I will give. bye.
+- i have dabbled into python
+- uhhhhhhhhh dunno
+- bye.
